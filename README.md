@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DianRahman
 - 👀 I’m interested in nothing
-- 🌱 I’m currently learning sll of this
+- 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on anything.
 - 📫 How to reach me ...
 
